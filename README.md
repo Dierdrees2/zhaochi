@@ -1,11 +1,6 @@
 
 <img src="https://raw.githubusercontent.com/mtbdtp3421/www/master/t/lh600.jpg"><br>
 
-<h1><strong>其他的新闻媒体</strong></h1>
-<细节> <概要> <a target="_blank" href="http:// 61.223.76.88 /i5yD? twuvi ">动态网</A> ＆NBSP;＆NBSP;＆NBSP;＆NBSP; <a target="_blank" href="http:// 61.223.76.88 /GnoF? ufllb ">明慧网</A> ＆NBSP;＆NBSP;＆NBSP;＆NBSP;＆NBSP;＆NBSP;＆NBSP;＆NBSP;＆NBSP; : arrow_double_down : </p></summary>
-<P> <a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md? wkdjp ">网门软件下载</A> </ P>
-<细节> <概要> <a target="_blank" href="http:// 114.25.27.179 /i5yD? fgcdf ">动态网</A> ＆NBSP;＆NBSP;＆NBSP;＆NBSP; <a target="_blank" href="http:// 114.25.27.179 /GnoF? uwrvq ">明慧网</A> ＆NBSP;＆NBSP;＆NBSP;＆NBSP;＆NBSP;＆NBSP;＆NBSP;＆NBSP;＆NBSP; : arrow_double_down : </p></summary>
-<P> <a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md? jytnb ">网门软件下载</A> </ P>
 </详情>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?odjox ">其他的新闻同步</a>        : arrow_double_down : </p></summary>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ybmqe ">其他的新闻同步</a>        : arrow_double_down : </p></summary>
